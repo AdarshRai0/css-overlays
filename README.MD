@@ -4,4 +4,3 @@ do follow if like my content
 💫Welcome to the 1% Club.
 🔥Daily dose of Motivation.
 😎Let's grow together.
-http://127.0.0.1:5500/index.html
